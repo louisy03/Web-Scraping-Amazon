@@ -8,8 +8,6 @@
 > Camarena Garcia Saul Andrey
 >
 > Mejia Enriquez Uziel Kaleb
->
-> Martinez Gonzalez Leonardo
 
 
 > [!IMPORTANT]
